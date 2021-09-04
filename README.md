@@ -11,7 +11,7 @@
 
 ## Hazırlayanlar
 
-#### Tuğçe Gökçeoğlu
 #### Büşra Çolak
+#### Tuğçe Gökçeoğlu
 
 
